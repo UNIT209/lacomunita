@@ -1,2 +1,0 @@
-# lacomunita
-lacomunita
